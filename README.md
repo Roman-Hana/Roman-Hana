@@ -5,7 +5,7 @@
 
 ### Connect with me:
 
-[<img align="left" alt=" | LinkedIn" width="22px" src="https://1000logos.net/wp-content/uploads/2017/03/Linkedin-Logo-500x313.png" />][linkedin]
+[<img align="left" alt=" | LinkedIn" width="22px" src="https://image.flaticon.com/icons/png/512/174/174857.png" />][linkedin]
 
 <br />
 
